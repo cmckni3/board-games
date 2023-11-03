@@ -8,6 +8,8 @@ Board/Card games that I have or like
 - [Coup Reformation](https://www.amazon.com/Indie-Boards-Cards-COUR2IBC-Reformation/dp/B00UTXW6SC)
 - [Exploding Kittens](https://www.amazon.com/Exploding-Kittens-About-Explosions-Sometimes/dp/B010TQY7A8)
 - [SET](https://www.amazon.com/gp/product/B00000IV34)
+- [Monopoly](https://www.amazon.com/Hasbro-00009-482-Monopoly-Board/dp/B00CV5PN2W)
+- [Clue](https://www.amazon.com/Hasbro-A5826079-Clue-Game/dp/B01JYVHMVA)
 
 ## Like
 
