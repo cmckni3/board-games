@@ -4,7 +4,7 @@ Board/Card games that I have or like
 
 ## Have
 
-- [Coup](https://www.amazon.com/Dystopian-Universe-Friends-Party-Entertainment/dp/B073SW4C38)
+- [Coup](https://www.amazon.com/Indie-Boards-and-Cards-COU1IBC/dp/B00GDI4HX4)
 - [Coup Reformation](https://www.amazon.com/Indie-Boards-Cards-COUR2IBC-Reformation/dp/B00UTXW6SC)
 - [Exploding Kittens](https://www.amazon.com/Exploding-Kittens-About-Explosions-Sometimes/dp/B010TQY7A8)
 - [SET](https://www.amazon.com/gp/product/B00000IV34)
